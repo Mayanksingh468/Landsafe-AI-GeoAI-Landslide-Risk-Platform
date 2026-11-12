@@ -1,0 +1,1 @@
+# Landsafe-AI-GeoAI-Landslide-Risk-Platform
